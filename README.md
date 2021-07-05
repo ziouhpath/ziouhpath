@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ziouhpath
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning html; css; java script
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... any suggestions!!
 - 📫 How to reach me Instagram: zi.ouh 
 whatsapp: +212640036363.
 Email: zinebouhmadpath@gmail.com
